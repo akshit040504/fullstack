@@ -81,10 +81,6 @@ https://github.com/user-attachments/assets/f7c9ff99-afc7-431e-9014-ae05d5f7614c
 
 ![Screenshot Example](https://drive.google.com/uc?id=1gJgZAwe-Va7-tvW-V4lIslKE5e_rqAe1)
 
-![Screenshot Example](https://drive.google.com/uc?id=1al_px310fw3Xuk1_GfLTUJTes0lYYoYK)
-
-![Screenshot Example](https://drive.google.com/uc?id=1IhG_LafElTR1Bm2I-liNp2Tju9oRe9QW)
-
 ![Screenshot Example](https://drive.google.com/uc?id=1bIrp7i1OgA_2AdkCmJPB9S01e8bkPvXe)
 
 ![Screenshot Example](https://drive.google.com/uc?id=1l3lwRtnU7bZpQVkEP_vrkgCQZUPopF_k)
